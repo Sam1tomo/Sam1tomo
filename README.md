@@ -2,7 +2,7 @@
 - 👀 I’m interested in Video Games, Music, Star Wars 
 - 🌱 I’m currently learning Cyber Security and Digital Forensics
 - 💞️ I’m looking to collaborate on programming
-- 📫 How to reach me- Teams, email
+- 📫 How to reach me: Teams, email
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I have a kitten called Ivy
 
